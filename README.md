@@ -1,5 +1,3 @@
-### Hi there 👋
+### Linax
 
-My name is Gleb.
-16 year.
 
